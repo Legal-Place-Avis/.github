@@ -1,5 +1,5 @@
 
-<h1>LegalPlace : Analyse Complète des Services Juridiques en Ligne 2025</h1>
+<h1>LegalPlace Avis : fiabilité tarifs et avantages 2025</h1>
 
 <p>
     <strong>Note globale :</strong> ⭐4,5/5 &nbsp;|&nbsp;
